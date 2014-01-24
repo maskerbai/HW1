@@ -1,2 +1,0 @@
-jintan bai
-Red socks
